@@ -1,0 +1,13 @@
+- 👋 Hi, My name Lê Nguyễn Quỳnh Hương
+- 👀 24/10/2???
+- 🌱 Mình thích code ... òm vẽ và nhớ nyc
+- 💞️ Mình nhìn như 1 con cánh cục trong linux haha , lùn ._.
+- 📫 Mình đang theo ngôn ngữ Python vì chưa đủ tầm lên cao
+- 😄 Sợ : deadline, bài tập, lỗi code fix không được=))
+- ⚡ Giỏi : ctrl C + Ctrl V kkk=))
+- 💔 Không có duyên với đường tình cũng không có duyên với đường code
+- 🎹 Nhạc yêu thích : VPop - Phương Ly, Trung Tự / nhạc pháp - love story - indila
+- 💼 gmail : quynhhuonglnguyen@gmail.com
+- 💻 facebook : Lng Quynh Huong
+- ☕ ai lớp cốp phi
+  
